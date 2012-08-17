@@ -1,1 +1,1 @@
-hello gud mrng ranjeet g
+gud mrng ranjeet g
